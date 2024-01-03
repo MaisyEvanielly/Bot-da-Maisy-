@@ -1,4 +1,4 @@
-Se for, respostar, lembre-se de colocar os créditos,
+Se for, repostar, lembre-se de colocar os créditos,
 Crador(a): Maisy Evanielly
 
 
