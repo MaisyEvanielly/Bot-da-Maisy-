@@ -1,4 +1,4 @@
 Arquivo da Maisy
 
 
-Importante que você não instale, pois esse arquivo pod conter vírus
+It is important that you do not download the file directly first talk to that person +55 94 8429-3330
